@@ -33,5 +33,4 @@ visit my DNI here! I share one w The Sin Incarnate \^\^
 
 <img width="600" height="80" alt="image" src="https://github.com/user-attachments/assets/2aa0e9d5-14f6-4132-8e02-fe08a3c0ea2f" />
 
-
 <img src="https://komarev.com/ghpvc/?username=(Sometangerine)" alt="Profile Views"  />
