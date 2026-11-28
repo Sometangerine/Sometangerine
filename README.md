@@ -1,3 +1,6 @@
+<img src="https://komarev.com/ghpvc/?username=(Sometangerine)" alt="Profile Views" />
+
+
 $\color{red}{\textsf{hihi hello helloo welcome to my github! feel free to look around}}$ <img width="60" height="60" alt="plague_doctor_sticker" src="https://github.com/user-attachments/assets/13a04db6-a721-4a72-9c45-b8a5fedab61d" /> 
 
 $\Large\color{#f00}{\textsf{dni! - > racism, lgbtq-phobes, neoprns(see bottom), problematic supporters, bottom for all}}$
@@ -33,4 +36,3 @@ visit my DNI here! I share one w The Sin Incarnate \^\^
 
 <img width="600" height="80" alt="image" src="https://github.com/user-attachments/assets/2aa0e9d5-14f6-4132-8e02-fe08a3c0ea2f" />
 
-<img src="https://komarev.com/ghpvc/?username=(Sometangerine)" alt="Profile Views" />
