@@ -1,4 +1,4 @@
-<img src="https://komarev.com/ghpvc/?username=(Sometangerine)" alt="Profile Views" />
+
 
 
 $\color{red}{\textsf{hihi hello helloo welcome to my github! feel free to look around}}$ <img width="60" height="60" alt="plague_doctor_sticker" src="https://github.com/user-attachments/assets/13a04db6-a721-4a72-9c45-b8a5fedab61d" /> 
